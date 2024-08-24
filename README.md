@@ -1,4 +1,12 @@
-### Hi there 👋
+### OBJECTIVE: HIGHLY EXPERIENCED COMPUTER SCIENTIST.
+❖ My long-term goal is to be an aviation computer and information research scientist.
+❖ Currently focused on earning a bachelor’s degree in computer science and Programming.
+❖ Possess a master's qualification in Computer Information and Research Science.
+❖ Seeks Internship to gain hands-on practical training and experience in Information Technology, Software 
+Engineering, and Cloud computing.
+❖ Aim to gain experience in artificial Intelligence and technological advancements.
+❖ Determined to perfect coding and software development skills up to an advanced and professional level.
+❖ Enhance social skills such as communication, listening, and technical writing skills.
 
 <!--
 **SamsonDoski/SamsonDoski** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
