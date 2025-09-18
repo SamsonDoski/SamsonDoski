@@ -1,4 +1,4 @@
-### OBJECTIVE: HIGHLY EXPERIENCED COMPUTER SCIENTIST.
+### OBJECTIVE: COMPUTER SCIENTIST/SOFTWARE DEVELOPER & ENGINEER.
 ❖ My long-term goal is to be a computer and information research scientist.
 ❖ Currently focused on earning a bachelor’s degree in computer science and Programming.
 ❖ Possess a master's qualification in Computer Information and Research Science.
